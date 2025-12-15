@@ -1,1 +1,2 @@
-# La-situaci-n-de-Alemania
+# La-situación-de-Alemania
+Hasta la época de la Revolución Francesa existían en Alemania 296 principados territoriales y eclesiásticos y 51 ciudades libres, unos y otras bajo el dominio titular del emperador de la dinastía de los Habsburgos. Cada príncipe, de hecho, era soberano absoluto en su territorio, incluso para la organización de su ejército con mercenarios extranjeros. El poder quedaba circunscrito a las familias más poderosas, que se repartían los cargos públicos.
